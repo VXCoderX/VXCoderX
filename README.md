@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @VXCoderX
+- 👀 I’m interested in ... Making games!
+- 🌱 I’m currently learning ... How to code!
+- 📫 How to reach me ... damarana698@gmail.com - make sure its gmail!
